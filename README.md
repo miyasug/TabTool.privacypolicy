@@ -1,0 +1,1 @@
+# TabTool.privacypolicy
